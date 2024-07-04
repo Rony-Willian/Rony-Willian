@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Rony Willian 😁
+## Bem-vindo(a) ao perfil de Rony Willian 😁
 
  <div>
    <a href="https://github.com/Rony-Willian">
